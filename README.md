@@ -1,2 +1,4 @@
 # Let_Still_This_Beam
-my poems. my life. regularly updated.
+poets -- like comics,\n
+are inherently quite sad.\n
+better off alone.
